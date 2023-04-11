@@ -1,10 +1,10 @@
 
-                                         Hoàng hạc lâu tống Mạnh Hạo Nhiên chi Quảng Lăng 
+                                       Hoàng Hạc lâu tống Mạnh Hạo Nhiên chi Quảng Lăng
                                                          
-                                                 Cố nhân tây từ hoàng hạc lâu
-                                                 Yên hoa tam nguyệt há Dương Châu
-                                                 Cô phàm viễn ảnh bích không tận
-                                                 Duy kiến trường giang thiên tế lưu
+                                                 Cố nhân tây từ Hoàng Hạc lâu,
+                                                 Yên hoa tam nguyệt há Dương Châu.
+                                                 Cô phàm viễn ảnh bích không tận,
+                                                 Duy kiến Trường Giang thiên tế lưu.
                                                                  
                                                                                       Lý Bạch
                                                                                                   
